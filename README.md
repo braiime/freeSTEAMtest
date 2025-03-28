@@ -23,4 +23,4 @@ SteamDB is a database of everything on Steam.
 Image
 Generator Lua & Manifest
 Manifest & Lua cysaw.top
-هاذي هيا الطريقة تع العاب ستيم بلمزية
+https://youtu.be/tvII6QFtkU4
