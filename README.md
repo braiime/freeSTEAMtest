@@ -6,7 +6,7 @@ https://drive.google.com/file/d/1gv513wF6fXMYBmXkqRiHeAnPleR-qORa/view?usp=shari
 https://steamdb.info/
 
 رابط موقع الـ Generator
-https://cysaw.top/
+https://www.cysaw.org/
 
 @here 
 SteamDB
